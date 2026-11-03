@@ -1,4 +1,3 @@
-# melikenazsamiloglu
 
 # Melike Naz Şamiloğlu
 
